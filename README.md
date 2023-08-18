@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DearAminu
+- 👋 Hi, I’m Muhammad Aminu
 - 👀 I’m interested in becoming a cybersecurity professional
 - 🌱 I’m currently learning cybersecurity basics
 - 💞️ I’m looking to connect and collaborate with professionals and gurus in the field, espcial Blue and Read team gurus
